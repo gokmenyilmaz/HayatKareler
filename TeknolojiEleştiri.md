@@ -6,3 +6,11 @@ bir ürünü alınca kafam rahat bu işimi görür demene izin yok
 #### İndirimli olan nerdeyse her üründe bir bug var
 
 ----  
+
+#### Ürün yorumları vs eleştirileri yerine güvenilir test firmaları çıkmalı ve sertifika vermeli
+#### 
+
+
+# Sağlık
+
+#### Temel kural : Doktorların eline düşmemek
