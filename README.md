@@ -1,4 +1,4 @@
-# HayatKareler.md-Zaman zaman hatırladığım kareler
+# HayatKareler : zaman zaman hatırladığım kareler
 
 #### Dağevi : Ahorun yanı yoğun yağmur yağarken toprak evin içi  (10 yaş)
 #### Dağevi : Tahta tekerlek (4 yaş)
